@@ -8,6 +8,8 @@
 
 **GitHub:** [Deanston](https://github.com/Deanston)
 
+**Discord:** Paulau Dmitry(@Deanston)
+
 ## About Me
 
 Having worked as an engineer for 2 years, I gained skills inherent in a universal worker, such as flexible thinking, stress resistance, teamwork and the ability to meet any deadlines. There is a great desire to learn something new, interesting and useful in the future.
