@@ -2,7 +2,7 @@
 ## Contact details
 **Location:** Belarus, Minsk
 
-**Phone:** +375297721051
+**Phone:** *+375297721051*
 
 **Email:** pavlovdmitry7991@gmail.com
 
